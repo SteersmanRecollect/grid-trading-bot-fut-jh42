@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with professional leverage trading bot | leverage-management + low-frequency, the #1 leverage trading bot. Includes leverage-management and low-frequency for
 
 
 
